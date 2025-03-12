@@ -47,6 +47,6 @@ I will regularly update this section with new examples as I continue to practice
 
 ## Contact
 
-Feel free to reach out to me via email: [Your Email] or connect with me on LinkedIn: [Your LinkedIn Profile].
+Feel free to reach out to me via email: rafal.godlewski.98@gmail.com or connect with me on LinkedIn: www.linkedin.com/in/rafał-godlewski-2690a422a.
 
 Thanks for visiting my portfolio! :)
